@@ -1,0 +1,2 @@
+# fortnite_shop
+フォートナイト
